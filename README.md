@@ -147,7 +147,6 @@ Abdurrahman Khan
 
 Email: abdurrahmankhan1429@gmail.com
 
-LinkedIn / GitHub profile links can be added here when available.
 
 ---
 
